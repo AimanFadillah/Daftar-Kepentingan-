@@ -1,2 +1,1 @@
-# Resolusi-tahun
-Resolusi untuk menyimpan saja
+Beberapa File Penting 
